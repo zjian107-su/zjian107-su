@@ -1,6 +1,7 @@
-### Hi, I'm Daniel👋 ![Schnappi](https://user-images.githubusercontent.com/35544956/106089865-d95e7680-60f6-11eb-8196-f867b8be0cce.png)
+### Hi, I'm Daniel ![Schnappi](https://user-images.githubusercontent.com/35544956/125106643-db693000-e0ad-11eb-8670-fc3a7c29c064.png)
 
-![Green Dark Gamer Survival Facebook Cover](https://user-images.githubusercontent.com/35544956/125105924-03a45f00-e0ad-11eb-92b1-31da3bfee40e.png)
+![GitHub Cover](https://user-images.githubusercontent.com/35544956/125106279-78779900-e0ad-11eb-9456-f6fa2e4a9271.png)
+
 
 
 - 📫 How to reach me: zjian107@syr.edu
