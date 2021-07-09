@@ -1,4 +1,5 @@
-### Hi, I'm Daniel ![Schnappi](https://user-images.githubusercontent.com/35544956/125106643-db693000-e0ad-11eb-8670-fc3a7c29c064.png)
+### Hi, I'm Daniel ![Schnappi](https://user-images.githubusercontent.com/35544956/125106824-18cdbd80-e0ae-11eb-9861-2c479a055b3c.png)
+
 
 ![GitHub Cover](https://user-images.githubusercontent.com/35544956/125106279-78779900-e0ad-11eb-9456-f6fa2e4a9271.png)
 
