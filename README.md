@@ -5,7 +5,7 @@
 
 
 
-- 📫 How to reach me: zjian107@syr.edu
+- 📫 How to reach out to me: zjian107@syr.edu
 - 😄 Pronouns: He/Him
 - 💬 Ask me anything
 - 💻 Technology can change the way how we live and work 
